@@ -64,7 +64,7 @@ Planned uploads include:
 
 ## 🤝 Let's Connect
 
-- 💼 LinkedIn: *[Joseph Mwanngi (https://www.linkedin.com/in/joseph-mwangi-845721283/)*
+- 💼 LinkedIn: *[Joseph Mwanngi] (https://www.linkedin.com/in/joseph-mwangi-845721283/)*
 - 📧 Email: *(jmwangi2288@gmail.com)*
 
 
